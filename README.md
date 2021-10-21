@@ -8,3 +8,4 @@
 Eerica12/Eerica12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+I just don't want to know what I'm doing I am locked out of my signal I can't get in doesn't messages to go through I don't know what's
